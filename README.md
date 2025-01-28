@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Vejtah
-- 👀 I’m interested in python
-- 🌱 I’m currently learning manim
+- 👀 eyes
+- 🌱 plant
 - 📫 How to reach me : don't
-- ⚡ Fun fact: i misspell python phyton
+- ⚡Blitz
 
 <!---
 Vejtah/Vejtah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
