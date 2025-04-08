@@ -1,5 +1,5 @@
 # Vejtah
-**if you need reach out** 
+**if you need, each out** 
 - Instagram: [@Vejtah][1]
 ## about myself
 > Sorry, i am too*oooo* lazy to do *this* **:D**
