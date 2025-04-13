@@ -1,6 +1,7 @@
 # Vejtah
 **if you need, reach out** 
 - Instagram: [@Vejtah][1]
+- vit@palaga.sk
 ## about myself
 > Sorry, i am too*oooo* lazy to do *this* **:D**
 <!---
